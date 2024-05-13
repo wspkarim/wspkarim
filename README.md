@@ -1,6 +1,4 @@
 ### Hi there 👋
-
+- 🌱 Owner @ veruxpvp.cc
 <!--
 **wspkarim/karim🦇**
-
-- 🌱 Owner @ veruxpvp.cc
